@@ -6,7 +6,7 @@
 
 ---
 
-![NBA Logo](https://vignette.wikia.nocookie.net/logopedia/images/4/4c/NBA_Horizontal_Logo_.svg/revision/latest?cb=20160207144301)
+![NBA Logo](https://mk0slamonlinensgt39k.kinstacdn.com/wp-content/uploads/2015/06/lebron-james-kobe-bryant-2048x1000.jpg)
 
 ---
 
